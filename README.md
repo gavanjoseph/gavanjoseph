@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gavanjoseph
-- 👀 I’m interested in prathyush
+- 👀 I’m interested in banana
 - 🌱 I’m currently learning about nail cutting
 - 💞️ I’m looking to collaborate on prathyush
 - 📫 How to reach me koratty
